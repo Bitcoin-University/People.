@@ -1,0 +1,2 @@
+- https://www.coindesk.com/markets/2020/11/26/previously-unpublished-emails-of-satoshi-nakamoto-present-a-new-puzzle/
+- https://www.coindesk.com/tech/2020/08/31/protection-over-profit-what-early-mining-patterns-suggest-about-bitcoins-inventor/
